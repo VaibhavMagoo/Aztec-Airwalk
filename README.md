@@ -1,4 +1,4 @@
-# Aztec Airwalk — Skateboard Ramp Manufacturing | Costing
+# Skateboard Ramp Manufacturing Costing
 
 **Course:** Managerial Accounting — SDSU Fowler College of Business  
 **Date:** December 2025
