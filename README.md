@@ -1,6 +1,6 @@
-# Aztec Airwalk — Skateboard Ramp Manufacturing | Managerial Accounting
+# Aztec Airwalk — Skateboard Ramp Manufacturing | Costing
 
-**Course:** BA 670 Managerial Accounting — SDSU Fowler College of Business  
+**Course:** Managerial Accounting — SDSU Fowler College of Business  
 **Date:** December 2025
 
 ---
